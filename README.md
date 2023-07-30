@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @clav64
 - 👀 I’m interested in music and gaming.
-- 🌱 I’m currently studying for an HND in Software Development.
+- 🌱 I’m currently a data analyst, studying for an BEng in Software Engineering.
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me ... send an email to 3rnxcwf7@clav64.anonaddy.com
 
